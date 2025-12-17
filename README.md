@@ -3,10 +3,29 @@
 Scratch Hand™ is a humane innovation in pet enrichment, created to enhance animal well‑being through comfort‑driven, interactive products. Rooted in advocacy and ethical design, the project blends compassion with scalable business strategy.
 
 ## Mission
-To provide humane, touch‑based enrichment that comforts dogs and supports guardians, shelters, and rescues.
+
+Scratch Hand™ exists to enrich the lives of pets and transform the systems that care for them.  
+Our mission is twofold: to deliver innovative enrichment tools that reduce stress in shelters and homes, **and** to reinvest the majority of our success back into animal welfare.  
+
+Each year, **75–80% of net earnings** will be donated to support:  
+- 🐾 Shelters and rescues  
+- 🍲 Food and supplies for animals in need  
+- 💊 Medical care and emergency treatment  
+- 🏠 Overall shelter enrichment and compassionate care programs  
+
+By embedding this pledge into our mission, Scratch Hand™ ensures that growth directly fuels compassion, systemic reform, and dignity for every animal.
+
 
 ## Vision
-To lead innovation in pet enrichment by delivering accessible, ethically designed solutions that reduce stress, foster adoption readiness, and advocate for a more compassionate world.
+
+We envision a future where no animal is left behind due to financial barriers or systemic neglect.  
+Scratch Hand™ will serve as both an innovation platform and a catalyst for reform — proving that ethical business can drive compassionate change.  
+
+Our vision is to:  
+- 🌍 Build a legacy of humane innovation that empowers shelters, rescues, and pet owners worldwide  
+- 🐾 Ensure every animal has access to enrichment, food, and medical care regardless of circumstance  
+- 💡 Inspire systemic reform in veterinary care, making compassion the standard rather than the exception  
+- 🤝 Unite communities, donors, and advocates under a shared pledge of dignity and care for all animals
 
 ## Highlights
 - 📈 U.S. pet care market projected to exceed $150B in 2025  
