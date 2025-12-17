@@ -39,4 +39,11 @@ Your support helps us bring enrichment tools to shelters **and** push for system
 📄 [Download the full Strategic Plan (PDF)](Strategic%20Planning%20for%20Scratch%20Hand.pdf)  
 ✍️ [Sign & share Babygirl’s Law petition](https://change.org/babygirl08072025)
 
+## Shelter Partnership Outreach
+
+Scratch Hand™ is designed to reduce kennel stress and enrich shelter environments.  
+We’re inviting shelters, rescues, and humane societies to join our pilot program and help shape the future of compassionate care.
+
+📬 To partner or request samples, contact: **garymills338@gmail.com**  
+🤝 Together, we can build a system that honors every animal’s dignity.
 
