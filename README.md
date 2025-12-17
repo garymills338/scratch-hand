@@ -30,4 +30,13 @@ The complete 27‑page plan includes detailed market analysis, competitor summar
 
  📄 [Download the full Strategic Plan (PDF)](Strategic%20Planning%20for%20Scratch%20Hand.pdf)
 
+## Support Humane Innovation
+
+Scratch Hand™ is more than a product — it’s part of a movement for compassionate veterinary care.  
+Your support helps us bring enrichment tools to shelters **and** push for systemic reform.
+
+💰 [Donate to Scratch Hand™](https://paypal.me/garymills338)  
+📄 [Download the full Strategic Plan (PDF)](Strategic%20Planning%20for%20Scratch%20Hand.pdf)  
+✍️ [Sign & share Babygirl’s Law petition](https://change.org/babygirl08072025)
+
 
