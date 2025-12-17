@@ -28,5 +28,6 @@ To lead innovation in pet enrichment by delivering accessible, ethically designe
 ## Full Strategic Plan
 The complete 27‑page plan includes detailed market analysis, competitor summaries, financial forecasts, ethics frameworks, and references.
 
-📄 [Download the full Strategic Plan (PDF)](Strategic%20Planning%20for%20Scratch%20Hand.pdf)
+ 📄 [Download the full Strategic Plan (PDF)](Strategic%20Planning%20for%20Scratch%20Hand.pdf)
+
 
