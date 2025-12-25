@@ -7,7 +7,7 @@ Scratch Hand™ is a humane innovation in pet enrichment, created to enhance ani
 Scratch Hand™ exists to enrich the lives of pets and transform the systems that care for them.  
 Our mission is twofold: to deliver innovative enrichment tools that reduce stress in shelters and homes, **and** to reinvest the majority of our success back into animal welfare.  
 
-Each year, **75–80% of net earnings** will be donated to support:  
+Each year, **70–80% of net earnings** will be donated to support:  
 - 🐾 Shelters and rescues  
 - 🍲 Food and supplies for animals in need  
 - 💊 Medical care and emergency treatment  
